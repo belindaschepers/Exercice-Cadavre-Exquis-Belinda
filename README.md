@@ -1,1 +1,2 @@
 # Cadavre Exquis
+*Il était une fois un petit chat qui avait rejoint un nouveau groupe de chats pour apprendre des choses. C'était parfois un peu compliqué mais heureusement, ce petit chat avait de la chance et avait avec lui des super-chats*
